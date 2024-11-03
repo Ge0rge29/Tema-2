@@ -20,6 +20,10 @@ Fire de legătură
 
 
 
-https://github.com/user-attachments/assets/00ff52ea-eded-41a2-8bd7-00389316ea32
+
+
+https://github.com/user-attachments/assets/387c71c7-7ebb-4323-ac1a-53a995c15dba
+
+
 
 
